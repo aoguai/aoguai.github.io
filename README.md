@@ -1,1 +1,1 @@
-# aoguai.github.io
+# aoguai.top
